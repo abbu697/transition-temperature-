@@ -7,5 +7,5 @@ First there is sample preparation on molding machine. then these sampes will ne 
 ![image](https://github.com/user-attachments/assets/a85a66e0-260f-4299-b663-3a4a1951bfa3)
 
 
-image taken frm internet!
+image taken from internet!
 
